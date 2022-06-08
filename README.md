@@ -25,9 +25,10 @@ Email me Now **vatshayan007@gmail.com** to get this Full Project Code, PPT, Repo
 
 ## How to Reach me :
 
-### Mail : vatshayan007@gmail.com 
+### 💬 Mail : vatshayan007@gmail.com 
 
-### WhatsApp: **+91 9310631437** (Helping 24*7) **[LINK](https://wa.me/message/CHWN2AHCPMAZK1)** 
+### 💬 WhatsApp: **+91 9310631437** (Helping 24*7) **[LINK](https://wa.me/message/CHWN2AHCPMAZK1)** 
 
-### CSE Projects: [LINK](https://www.cse-projects.com)
+### Website : https://www.cse-projects.com/
 
+### 1000 Computer Science Project List : https://www.computer-science-project.in/
